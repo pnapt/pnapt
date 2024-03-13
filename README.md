@@ -1,3 +1,7 @@
+### So my friend borrow my github account and change to his user profile for his portfolio, now google seo still show his picture 
+
+
+
 ### Hi there , My name is Nat aka Pnapt 👋
 
 My github currently in construction .
